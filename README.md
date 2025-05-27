@@ -40,5 +40,6 @@
 📬 Contact<br>
 Created by Shoyam Chaulagain<br>
 Feel free to reach out for suggestions, collaborations, or feedback!<br>
-Here's instagram : https://www.instagram.com/shoo_yam/
+instagram : https://www.instagram.com/shoo_yam/<br>
+email : hello.shoyam@gmail.com
 
